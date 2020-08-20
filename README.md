@@ -1,0 +1,2 @@
+# domekuza
+Tmpt cari idea
